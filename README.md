@@ -155,7 +155,7 @@ made me want to bring my club to the world. I'm doing this through hackEDU.
 
 **LinkedIn Profile**
 
-linkedin.com/zachlatta
+linkedin.com/in/zachlatta
 
 **Link to GitHub, or other account where your work is displayed online**
 
